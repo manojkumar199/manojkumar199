@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @manojkumar199
 - 👀 I’m interested in .learn new things.
-- 🌱 I’m currently learning ..
+- 🌱 I’m currently learning .
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
